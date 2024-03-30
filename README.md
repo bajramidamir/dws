@@ -1,3 +1,15 @@
 # dws
-Neki osnovni tekst
+Nesto novo
+
+
+
 Damir Bajrami
+
+
+
+Datum rodjenja: 15.12.2001.
+
+
+Tacno vrijeme: 14:15 
+
+
